@@ -1,8 +1,8 @@
 ## Making changes
 
-A more structured and fulfilling life is something I’ve been pursuing for several years now. Planning out days, weeks, months, and working towards goals are things that people ***know*** are important when trying to have a structured and fulfilled life. Unfortunately, I did not know ***why*** those things were important. It made a surface-level logical sense to have tasks planned out and complete them in timely matters, but meanwhile the lack of future oriented thinking is what kept me from reaching the potential I had.
+   A more structured and fulfilling life is something I’ve been pursuing for several years now. Planning out days, weeks, months, and working towards goals are things that people ***know*** are important when trying to have a structured and fulfilled life. Unfortunately, I did not know ***why*** those things were important. It made a surface-level logical sense to have tasks planned out and complete them in timely matters, but meanwhile the lack of future oriented thinking is what kept me from reaching the potential I had.
 
-        I won’t lie and say that I am where I want to be. I am not even close to where I want to be when it comes to consistently applying structure and discipline in my life. But I have a ***taste*** of the benefits that come with the lifestyle I am striving for. To show examples of what I mean, I will list out the successes I’ve had with these philosophies, and the (probably many more) things that I still struggle with, respectfully:
+   I won’t lie and say that I am where I want to be. I am not even close to where I want to be when it comes to consistently applying structure and discipline in my life. But I have a ***taste*** of the benefits that come with the lifestyle I am striving for. To show examples of what I mean, I will list out the successes I’ve had with these philosophies, and the (probably many more) things that I still struggle with, respectfully:
 
 Successes
 
@@ -55,7 +55,7 @@ Struggles: *things that I don’t consistently do, or haven’t yet tackled*
         - Sometimes I will allow myself to do things that will interrupt the flow of what I am wanting to achieve, and will thus set me back in progression. i.e.: not winding down before bed thus making the following day bad.
         - Mostly with my family, I have allowed myself to take on a lot of emotional baggage. I have unclear expectations of others and unclear boundaries when it comes to people in my family. It has been extremely stressful for me to be the peacekeeper in my family and allowing myself to feel responsible for other people’s wellbeing.
 
-        Initially this was just a journal entry, but I just got done listening to a podcast that was focused on life planning and I guess I had a lot to say. After I’m done writing this, I will be putting together a document, or many, that will go over my values, plans, goals, ideas, etc. I want to be a positive influence on people in my life now, and people that will be in my life in the future. I know that everything I want to achieve won’t happen immediately, because I will burn out. So now, I will make a list of goals:
+   Initially this was just a journal entry, but I just got done listening to a podcast that was focused on life planning and I guess I had a lot to say. After I’m done writing this, I will be putting together a document, or many, that will go over my values, plans, goals, ideas, etc. I want to be a positive influence on people in my life now, and people that will be in my life in the future. I know that everything I want to achieve won’t happen immediately, because I will burn out. So now, I will make a list of goals:
 
 # Goals
 
