@@ -4,6 +4,8 @@
 
    I won’t lie and say that I am where I want to be. I am not even close to where I want to be when it comes to consistently applying structure and discipline in my life. But I have a ***taste*** of the benefits that come with the lifestyle I am striving for. To show examples of what I mean, I will list out the successes I’ve had with these philosophies, and the (probably many more) things that I still struggle with, respectfully:
 
+---
+
 **Successes**
 
 - Mental Health
@@ -31,6 +33,8 @@
         - etc.
 - Hobbies
     - It’s important for me to have a variety of hobbies because I get burnt out on things and need something else to pivot to.
+
+---
 
 **Struggles: *things that I don’t consistently do, or haven’t yet tackled***
 
@@ -117,3 +121,4 @@
 - Have meeting with Michael about the app
 - Go over calendar and schedule for today and this week
 
+---
