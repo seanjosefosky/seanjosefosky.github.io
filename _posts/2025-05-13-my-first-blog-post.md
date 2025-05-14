@@ -4,7 +4,7 @@
 
    I won’t lie and say that I am where I want to be. I am not even close to where I want to be when it comes to consistently applying structure and discipline in my life. But I have a ***taste*** of the benefits that come with the lifestyle I am striving for. To show examples of what I mean, I will list out the successes I’ve had with these philosophies, and the (probably many more) things that I still struggle with, respectfully:
 
-Successes
+**Successes**
 
 - Mental Health
     - Therapy, with few breaks since 2021, has helped me learn about the expansive list of different emotions, how to understand what emotion(s) I (or another person) feel in a particular moment, and how to address said emotion(s) healthily (emotional maturity). Therapy also helped me confront and overcome addictions that I was too afraid to address.
@@ -32,7 +32,7 @@ Successes
 - Hobbies
     - It’s important for me to have a variety of hobbies because I get burnt out on things and need something else to pivot to.
 
-Struggles: *things that I don’t consistently do, or haven’t yet tackled*
+**Struggles: *things that I don’t consistently do, or haven’t yet tackled***
 
 - Mental health
     - Sometimes I forget to take my medicine for a few days, or I am too lazy to drive to the pharmacy, and I FEEL it. Things start falling apart and take a while to build it back up again. This is something that I have built into my morning routine and has been working better.
